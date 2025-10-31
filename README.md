@@ -1,2 +1,1 @@
-# Clash-Verge-Rev
-Clash Verge Rev 下载软件教程分享
+# Clash Verge Rev 下载软件教程分享
